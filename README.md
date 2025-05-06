@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Java and C#**
 
-- 📫 How to reach me **idanaza@post.bgu.ac.il**
+- 📫 How to reach me **idan.azama.jobs@gmail.com**
 
 - 📄 Know about my experiences [https://www.linkedin.com/in/idan-azama-481889216/](https://www.linkedin.com/in/idan-azama-481889216/)
 
